@@ -5,3 +5,6 @@
 ```config.json doldurun Sonra Doya Doya Kullanabilrsniz```
 
 kendim yazdım mq çalıntı demeyinde
+
+
+https://discord.gg/96eHzcpV Şu Sw Ye Gelirseniz Özel Kodlar Paylaşcam
